@@ -18,7 +18,7 @@
 
  &emsp;  &emsp; ╰┈➤ in headspace 19 , october 27th .
  
-  &emsp; &emsp; &emsp;╰──╮ source attached -- though i dont act like source.
+  &emsp; &emsp; &emsp;╰──╮ source attached -- though i dont act like source. || I am very patient with other systems alters and others + nonverbal people , I do not rush anyone . As i dont like being rushed or rushing people.
 
    &emsp; &emsp; &emsp; &emsp; ✎ main account is @iitrappedd , we are not open about being a system sometimes.
 
